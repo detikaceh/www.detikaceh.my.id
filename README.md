@@ -1,0 +1,1 @@
+# www.detikaceh.my.id
